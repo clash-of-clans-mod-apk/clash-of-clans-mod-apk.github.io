@@ -1,5 +1,3 @@
-# Clash of Clans Mod APK
-
 **Download the latest Clash of Clans Mod APK for Android!**
 
 [![Download Button](https://i.ibb.co/cv0JFfW/Download-Now-Button.png)](https://modmenuz.com/clash-of-clans/mod-apk/)
